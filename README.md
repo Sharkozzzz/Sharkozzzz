@@ -15,8 +15,7 @@ IF U LOVE JAZMIN BEAN(a music artist) HII I LOVE JAZMIN BEAN ASWELL‼️‼️
 Animatic my belovedghegwrhgwerjwer😻
 
 more info ig👹👹
-
-https://greatwhiteshark.straw.page
+<b>https://greatwhiteshark.straw.page</b>
 
 </p>
 
