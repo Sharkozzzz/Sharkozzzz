@@ -13,6 +13,7 @@ She/Her
 IF U LOVE JAZMIN BEAN(a music artist) HII I LOVE JAZMIN BEAN ASWELL‼️‼️
 
 Animatic my belovedghegwrhgwerjwer😻
+I love tord eddsworld ayayaya😼
 
 more info ig👹👹
 <b>https://greatwhiteshark.straw.page</b>
